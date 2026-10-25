@@ -1,6 +1,6 @@
 <p align="center">
   <img src="https://i.ibb.co/8LX48jkx/Untitled212-20261024202235.png" width="300">
-</p>     eden , he / it , stolas fictkin 
+</p>     eden , he / it , stolas fictkin . .
              demi-boy , polyamorous , gay . 
              
              I don't particularly like helluva boss or hazbins writing,
